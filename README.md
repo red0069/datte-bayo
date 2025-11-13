@@ -1,4 +1,4 @@
 # datte-bayo
-pheli bar bnaya h bhai 
+nice to meet you buddy^-^
 <br>
 Author - baku no pico
